@@ -1,5 +1,3 @@
-Chapter 11: Re-Evaluating and Adjusting
-=======================================
 
 Re-evaluating and adjusting habits and routines is an essential aspect of personal and professional growth. In this chapter, we will explore techniques for re-evaluating and adjusting habits and routines as life changes, strategies for coping with transitions and encouraging continued development, and the benefits of re-evaluating and adjusting habits and routines in encouraging continued personal and professional growth.
 

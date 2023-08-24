@@ -1,5 +1,3 @@
-Chapter 7: Habit Stacking
-=========================
 
 In this chapter, we will explore the technique of habit stacking and its benefits in encouraging personal and professional growth. We will also discuss techniques and strategies for effectively habit stacking to boost productivity and tap into synergy.
 

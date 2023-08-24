@@ -1,5 +1,3 @@
-Chapter 4: Creating Effective Habits and Routines
-=================================================
 
 Creating effective habits and routines is essential for building success in any area of life. In this chapter, we will explore techniques for creating effective habits and routines and increasing productivity, strategies for incorporating positive changes into daily life, and the benefits of creating effective habits and routines in building success.
 

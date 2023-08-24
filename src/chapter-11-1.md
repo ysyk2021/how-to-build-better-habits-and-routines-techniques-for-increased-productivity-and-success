@@ -1,5 +1,3 @@
-Techniques for Re-evaluating and Adjusting Habits and Routines as Life Changes
-=======================================================================================================================
 
 Re-evaluating and adjusting habits and routines is an essential aspect of personal and professional growth, especially during times of change. In this chapter, we will explore techniques for re-evaluating and adjusting habits and routines as life changes.
 

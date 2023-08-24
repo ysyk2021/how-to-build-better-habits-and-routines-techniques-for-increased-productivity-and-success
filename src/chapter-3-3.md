@@ -1,5 +1,3 @@
-The Benefits of Overcoming Obstacles to Change in Encouraging Personal and Professional Growth
-=========================================================================================================================================
 
 Overcoming obstacles to change is a critical aspect of building better habits and routines. In this chapter, we will explore the benefits of overcoming obstacles to change in encouraging personal and professional growth.
 

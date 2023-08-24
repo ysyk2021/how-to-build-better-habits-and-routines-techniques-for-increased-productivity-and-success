@@ -1,5 +1,3 @@
-Techniques for Assessing Current Habits and Routines and Identifying Areas of Improvement
-===========================================================================================================================================
 
 Assessing current habits and routines is an essential step in building better ones. In this chapter, we will explore techniques for assessing current habits and routines and identifying areas of improvement.
 

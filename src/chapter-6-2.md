@@ -1,5 +1,3 @@
-Strategies for Creating Efficient Daily Schedules
-======================================================================================
 
 In this chapter, we will explore strategies for creating efficient daily schedules that support the development of better habits and routines. A daily schedule can help you stay on track with your goals and ensure that you are making progress towards them.
 

@@ -1,5 +1,3 @@
-Chapter 6: Building Better Routines
-===================================
 
 Building better routines is essential to maximizing productivity and achieving success. In this chapter, we will explore techniques for building better routines, strategies for creating efficient daily schedules, and the benefits of building better routines in encouraging success.
 

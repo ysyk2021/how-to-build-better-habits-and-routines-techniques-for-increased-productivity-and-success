@@ -1,5 +1,3 @@
-Chapter 9: Mindset and Motivation
-=================================
 
 In this chapter, we will explore the importance of mindset and motivation in building better habits and routines. A positive mindset and strong motivation can help you stay on track with your goals and overcome obstacles.
 

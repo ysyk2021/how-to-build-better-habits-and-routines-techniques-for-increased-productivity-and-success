@@ -1,5 +1,3 @@
-Techniques for Using Technology and Tools to Support Better Habits and Routines
-=========================================================================================================================================
 
 In this chapter, we will explore the role of technology and tools in building better habits and routines. Technology has made our lives easier in many ways, and it can also be used to support the development of positive habits and routines.
 

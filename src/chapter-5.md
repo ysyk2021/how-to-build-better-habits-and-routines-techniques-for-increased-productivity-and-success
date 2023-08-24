@@ -1,5 +1,3 @@
-Chapter 5: Developing Good Habits
-=================================
 
 Developing good habits is essential for personal and professional growth. In this chapter, we will explore techniques for developing good habits and breaking bad ones, strategies for staying accountable and encouraging consistency, and the benefits of developing good habits in encouraging personal and professional growth.
 

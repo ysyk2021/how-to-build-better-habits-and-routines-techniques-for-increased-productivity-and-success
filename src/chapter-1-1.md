@@ -1,5 +1,3 @@
-Defining Habits and Routines and their Impact on Personal and Professional Lives
-=========================================================================================================
 
 Habits and routines are fundamental components of daily life that can have a significant impact on personal and professional success. In this chapter, we will define habits and routines and explore how they impact our lives.
 

@@ -1,5 +1,3 @@
-Chapter 2: Assessing Current Habits and Routines
-================================================
 
 Assessing current habits and routines is a crucial step towards building better ones. In this chapter, we will explore techniques for assessing current habits and routines, strategies for creating a plan and prioritizing changes, and the benefits of assessing current habits and routines in encouraging personal accountability and goal-setting.
 

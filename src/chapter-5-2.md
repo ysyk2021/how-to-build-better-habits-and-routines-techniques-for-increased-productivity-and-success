@@ -1,5 +1,3 @@
-Strategies for Staying Accountable and Encouraging Consistency
-=================================================================================================
 
 In this chapter, we will explore strategies for staying accountable and encouraging consistency in developing good habits. Developing good habits is essential for personal and professional growth, but it can be challenging to stay consistent and accountable. These strategies can help you overcome those challenges.
 

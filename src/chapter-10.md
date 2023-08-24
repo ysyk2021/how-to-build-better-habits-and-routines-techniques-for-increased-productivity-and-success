@@ -1,5 +1,3 @@
-Chapter 10: Technology and Tools for Habits and Routines
-========================================================
 
 In today's digital age, technology and tools can be valuable resources in building better habits and routines. In this chapter, we will explore techniques, strategies, and benefits of using tech and tools to support positive habit formation.
 

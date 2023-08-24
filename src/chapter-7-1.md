@@ -1,5 +1,3 @@
-Techniques for Habit Stacking and Combining Habits to Increase Effectiveness
-=======================================================================================================
 
 In this chapter, we will explore techniques for habit stacking and combining habits to increase effectiveness. Habit stacking is a powerful technique that involves taking advantage of existing habits to create new ones. By stacking new habits onto existing ones, you can create a chain of positive behaviors that can lead to significant personal and professional growth.
 

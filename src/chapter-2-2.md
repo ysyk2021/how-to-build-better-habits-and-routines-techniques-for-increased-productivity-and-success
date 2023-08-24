@@ -1,5 +1,3 @@
-Strategies for Creating a Plan and Prioritizing Changes
-=========================================================================================================
 
 Assessing current habits and routines is an important step towards building better ones. In this chapter, we will explore strategies for creating a plan and prioritizing changes based on your assessment of current habits and routines.
 

@@ -1,5 +1,3 @@
-Techniques for Creating Effective Habits and Routines and Increasing Productivity
-====================================================================================================================================
 
 Creating effective habits and routines is essential for increasing productivity and achieving success in any area of life. In this chapter, we will explore techniques for creating effective habits and routines and increasing productivity.
 

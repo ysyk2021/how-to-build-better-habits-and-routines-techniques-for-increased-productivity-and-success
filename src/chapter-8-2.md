@@ -1,5 +1,3 @@
-Strategies for Avoiding Procrastination and Distractions
-====================================================================================
 
 In this chapter, we will explore strategies for avoiding procrastination and distractions when managing your time. Effective time management is essential for building better habits and routines, increasing productivity, and achieving personal and professional goals. However, procrastination and distractions can derail your efforts and prevent you from being productive. These strategies can help you stay on track and make the most of your time.
 
@@ -32,5 +30,4 @@ Conclusion
 ----------
 
 In conclusion, effective time management is essential for building better habits and routines, increasing productivity, and achieving personal and professional goals. Avoiding procrastination and distractions is key to making the most of your time. Strategies such as setting realistic goals, creating a schedule, eliminating distractions, using a task list, and taking regular breaks can help you stay on track and make the most of your time. By incorporating these strategies into your daily routine, you can achieve personal and professional growth and build better habits and routines that last a lifetime.
-
 

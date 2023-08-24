@@ -1,5 +1,3 @@
-Chapter 3: Overcoming Obstacles to Change
-=========================================
 
 Building better habits and routines requires overcoming obstacles to change. In this chapter, we will explore techniques for overcoming obstacles and building better habits and routines, strategies for tapping into motivation and willpower, and the benefits of overcoming obstacles in encouraging personal and professional growth.
 

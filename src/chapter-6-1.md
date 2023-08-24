@@ -1,5 +1,3 @@
-Techniques for Building Better Routines and Maximizing Productivity
-========================================================================================================
 
 Building better routines is essential to maximizing productivity and achieving success. In this chapter, we will explore techniques for building better routines and maximizing productivity.
 

@@ -1,5 +1,3 @@
-Strategies for Tapping into Motivation and Willpower
-===============================================================================================
 
 Overcoming obstacles to change is an essential aspect of building better habits and routines. In this chapter, we will explore strategies for tapping into motivation and willpower to overcome obstacles and achieve success.
 

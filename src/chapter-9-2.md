@@ -1,5 +1,3 @@
-Strategies for Overcoming Negative Self-Talk and Building Resilience
-=======================================================================================================
 
 Developing a positive mindset and motivation are critical components of building better habits and routines. In this chapter, we will explore strategies for overcoming negative self-talk and building resilience.
 

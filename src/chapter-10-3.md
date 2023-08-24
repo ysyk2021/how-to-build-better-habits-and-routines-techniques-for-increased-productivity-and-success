@@ -1,5 +1,3 @@
-The Benefits of Technology and Tools for Habits and Routines in Encouraging Success
-=============================================================================================================================================
 
 Technology and tools can be powerful resources when it comes to building better habits and routines. In this chapter, we will explore the benefits of technology and tools for habits and routines in encouraging success.
 

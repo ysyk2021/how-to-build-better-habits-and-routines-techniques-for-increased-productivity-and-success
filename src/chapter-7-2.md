@@ -1,5 +1,3 @@
-Strategies for Tapping into Synergy and Boosting Productivity
-========================================================================================
 
 In this chapter, we will explore the concept of habit stacking and how it can help you tap into synergy and boost productivity. Habit stacking is a technique where you stack new habits onto existing ones to create a chain of positive behaviors.
 

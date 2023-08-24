@@ -1,5 +1,3 @@
-Strategies for Incorporating Apps and Other Resources for Increased Productivity
-==========================================================================================================================================
 
 Technology and tools can be powerful resources when it comes to building better habits and routines. In this chapter, we will explore strategies for incorporating apps and other resources for increased productivity.
 

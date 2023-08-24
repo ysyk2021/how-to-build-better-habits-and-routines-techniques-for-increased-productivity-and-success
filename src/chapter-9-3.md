@@ -1,5 +1,3 @@
-The Benefits of Mindset and Motivation in Encouraging Personal and Professional Growth
-=========================================================================================================================
 
 Developing a positive mindset and motivation are critical components of building better habits and routines. In this chapter, we will explore the benefits of mindset and motivation in encouraging personal and professional growth.
 

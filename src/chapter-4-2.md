@@ -1,5 +1,3 @@
-Strategies for Incorporating Positive Changes into Daily Life
-================================================================================================================
 
 Incorporating positive changes into daily life can be challenging, but it is essential for building effective habits and routines. In this chapter, we will explore strategies for incorporating positive changes into daily life and developing effective habits and routines.
 

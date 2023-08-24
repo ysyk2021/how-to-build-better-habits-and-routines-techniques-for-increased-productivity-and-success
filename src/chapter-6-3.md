@@ -1,5 +1,3 @@
-The Benefits of Building Better Routines in Encouraging Success
-====================================================================================================
 
 In this chapter, we will explore the benefits of building better routines and how it can lead to increased productivity and success. A routine is a set of habits or activities that you regularly practice. It can be anything from your morning routine to your bedtime routine. Having a routine helps you create structure in your life and ensures that you are making progress towards your goals.
 
