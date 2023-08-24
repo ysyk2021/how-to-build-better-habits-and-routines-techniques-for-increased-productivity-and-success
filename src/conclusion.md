@@ -1,5 +1,4 @@
 
-
 In this book, we have explored various techniques for building better habits and routines to increase productivity and achieve success. In this final chapter, we will summarize key points presented in the book, develop an action plan for building better habits and routines, and encourage continual growth and development towards increased productivity and success.
 
 Summarizing Key Points Presented in the Book
