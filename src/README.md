@@ -10,3 +10,7 @@ From time management and goal-setting to self-discipline and focus, this book of
 So whether you're looking to achieve greater success in your career, improve your relationships, or simply live a more fulfilling life, "How to Build Better Habits and Routines" can help. By following the techniques outlined in this book, you can break free from old patterns, build positive habits and routines, and unlock your full potential.
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
