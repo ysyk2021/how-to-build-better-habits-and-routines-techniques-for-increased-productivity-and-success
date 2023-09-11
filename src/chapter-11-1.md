@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Re-evaluating and Adjusting Habits and Routines as Life Changes
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for re-evaluating and adjusting habits and routines as life changes. Life is dynamic, and our circumstances, priorities, and goals can shift over time. To maintain productivity and success, it is crucial to regularly assess and adapt our habits and routines accordingly. By being proactive and responsive to change, we can optimize our strategies and ensure continued growth and achievement.
 

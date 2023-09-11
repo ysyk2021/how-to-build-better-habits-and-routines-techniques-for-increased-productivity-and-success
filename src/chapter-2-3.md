@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Assessing Current Habits and Routines in Encouraging Personal Accountability and Goal-Setting
-========================================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Assessing our current habits and routines is a powerful tool for personal growth, accountability, and goal-setting. By taking the time to evaluate our behaviors and patterns, we gain valuable insights into what is working well and what needs improvement. In this chapter, we will explore the benefits of assessing our habits and routines and how it can support us in becoming more accountable and setting meaningful goals.
 

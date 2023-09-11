@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of Building Better Routines in Encouraging Success
-==========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come with building better routines and how they can contribute to achieving success. By understanding these benefits, individuals can gain motivation and purpose in developing effective habits and routines that lead to increased productivity and success.
 

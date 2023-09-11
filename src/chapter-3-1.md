@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Overcoming Obstacles to Change and Building Better Habits and Routines
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore powerful techniques for overcoming obstacles to change and building better habits and routines. Change can be challenging, and establishing new habits and routines requires dedication and perseverance. By understanding the common obstacles that arise during this process and implementing effective strategies, we can overcome them and create lasting positive change. In this chapter, we will discuss practical techniques for navigating challenges and building better habits and routines.
 

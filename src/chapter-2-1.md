@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Assessing Current Habits and Routines and Identifying Areas of Improvement
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for assessing your current habits and routines and identifying areas that need improvement. Self-reflection and evaluation are essential for personal growth and building better habits and routines. By analyzing your current behaviors, you can gain insights into what is working well and what needs to change. Let's delve into the techniques for assessing your habits and routines.
 

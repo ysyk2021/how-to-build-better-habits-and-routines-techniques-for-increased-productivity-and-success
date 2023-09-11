@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Habit Stacking and Combining Habits to Increase Effectiveness
-=======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the powerful techniques of habit stacking and combining habits to maximize their effectiveness in building better habits and routines. These techniques harness the concept of synergy, where the combined impact of multiple habits is greater than the sum of their individual effects. By strategically stacking and combining habits, we can create a seamless and efficient system that promotes increased productivity and success.
 

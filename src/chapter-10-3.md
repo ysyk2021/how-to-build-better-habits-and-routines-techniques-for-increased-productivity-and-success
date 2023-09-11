@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Technology and Tools for Habits and Routines in Encouraging Success
-==============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the benefits of utilizing technology and tools to support habits and routines in order to encourage success. Technology has become an integral part of our daily lives, and when used wisely, it can play a significant role in improving productivity, efficiency, and overall success in building better habits and routines. In this chapter, we will discuss the various ways in which technology and tools can aid in the development and maintenance of successful habits and routines.
 

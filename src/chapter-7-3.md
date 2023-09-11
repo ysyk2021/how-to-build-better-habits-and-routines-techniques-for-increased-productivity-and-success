@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Habit Stacking in Encouraging Personal and Professional Growth
-=========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of habit stacking and its significant benefits in encouraging personal and professional growth. Habit stacking is a technique that involves building new habits by attaching them to existing ones. By leveraging the power of habit stacking, individuals can enhance their productivity, cultivate positive behaviors, and achieve long-term success. In this chapter, we will discuss the benefits of habit stacking and provide practical tips for implementing it effectively.
 

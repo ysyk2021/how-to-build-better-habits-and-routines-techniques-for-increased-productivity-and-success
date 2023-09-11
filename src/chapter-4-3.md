@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Creating Effective Habits and Routines in Building Success
-=====================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the numerous benefits that come with creating effective habits and routines. By establishing positive and consistent behaviors, individuals can significantly enhance their chances of achieving success in various areas of life. Let's dive into the advantages of building effective habits and routines.
 

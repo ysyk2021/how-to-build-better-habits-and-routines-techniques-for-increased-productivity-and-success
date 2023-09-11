@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Staying Accountable and Encouraging Consistency
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for staying accountable and encouraging consistency in building better habits and routines. Accountability plays a crucial role in maintaining motivation and ensuring long-term success. By implementing these strategies, you can strengthen your commitment to your habits, increase consistency, and achieve your desired outcomes.
 

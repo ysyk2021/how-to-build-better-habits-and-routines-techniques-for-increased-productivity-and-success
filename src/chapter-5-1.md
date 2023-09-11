@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Developing Good Habits and Breaking Bad Ones
-======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective techniques for developing good habits and breaking bad ones. Habits play a significant role in our daily lives, shaping our productivity and overall success. By understanding the science behind habits and employing proven strategies, you can cultivate positive behaviors and eliminate detrimental ones. In this chapter, we will discuss practical techniques to develop good habits and break bad ones, helping you achieve long-term success.
 

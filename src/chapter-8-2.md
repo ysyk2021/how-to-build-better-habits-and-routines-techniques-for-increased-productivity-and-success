@@ -1,5 +1,4 @@
-Chapter 10: **Strategies for Avoiding Procrastination and Distractions**
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for avoiding procrastination and minimizing distractions to increase productivity and achieve success. Procrastination and distractions can hinder our ability to develop effective habits and routines. By implementing these strategies, we can overcome the temptation to put off tasks and stay focused on our goals, ultimately leading to increased productivity and success.
 

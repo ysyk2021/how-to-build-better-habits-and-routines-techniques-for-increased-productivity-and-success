@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Building Better Routines and Maximizing Productivity
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques that can help individuals build better routines and maximize their productivity. By implementing these techniques, individuals can optimize their daily activities, develop positive habits, and enhance their overall productivity.
 

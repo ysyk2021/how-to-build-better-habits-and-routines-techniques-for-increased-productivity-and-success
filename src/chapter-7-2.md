@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Tapping into Synergy and Boosting Productivity
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore a range of strategies to tap into synergy and boost productivity. Synergy refers to the combined effect that is greater than the sum of individual parts. By incorporating these techniques into your routines and habits, you can harness the power of synergy to increase your productivity and achieve greater success.
 

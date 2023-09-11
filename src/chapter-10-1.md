@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Using Technology and Tools to Support Better Habits and Routines
-==========================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for using technology and tools to support the development of better habits and routines. With the advancements in digital technology, we now have access to a wide range of applications and tools that can help us track, monitor, and reinforce our habits and routines. By leveraging these resources effectively, we can enhance our productivity and achieve greater success. In this chapter, we will discuss different strategies and techniques to make the most of technology in building better habits and routines.
 

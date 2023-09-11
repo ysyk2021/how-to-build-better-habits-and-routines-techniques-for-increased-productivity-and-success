@@ -1,5 +1,4 @@
-Chapter 11: Strategies for Tapping into Motivation and Willpower
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for tapping into motivation and willpower to enhance productivity and achieve success. Motivation and willpower play significant roles in our ability to establish and maintain productive habits and routines. By understanding how to harness these powerful forces, we can unlock our full potential and accomplish our goals. In this chapter, we will discuss practical techniques for accessing motivation and strengthening willpower.
 

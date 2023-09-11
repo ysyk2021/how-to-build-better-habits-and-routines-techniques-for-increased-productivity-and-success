@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Creating a Plan and Prioritizing Changes
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Creating a plan and prioritizing changes are essential steps in building better habits and routines. Without a clear roadmap and a systematic approach, it can be challenging to make sustainable improvements. In this chapter, we will explore strategies for creating an effective plan and prioritizing changes to enhance productivity and success.
 

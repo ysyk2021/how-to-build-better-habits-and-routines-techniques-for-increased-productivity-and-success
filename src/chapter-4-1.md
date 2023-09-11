@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Creating Effective Habits and Routines and Increasing Productivity
-============================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques that can help individuals build effective habits and routines to increase productivity and achieve success. By implementing these techniques, individuals can optimize their daily activities, develop positive habits, and enhance their overall productivity.
 

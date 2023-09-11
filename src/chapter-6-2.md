@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Creating Efficient Daily Schedules
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various strategies that can help individuals build efficient daily schedules to maximize productivity and achieve success. By implementing effective scheduling techniques, individuals can optimize their time, prioritize tasks, and establish beneficial habits and routines.
 

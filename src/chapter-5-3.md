@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of Developing Good Habits in Encouraging Personal and Professional Growth
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing good habits is a powerful strategy for promoting personal and professional growth. When we establish positive routines and behaviors, we create a foundation for success and productivity. In this chapter, we will explore the numerous benefits of developing good habits and how they contribute to our overall growth and success.
 

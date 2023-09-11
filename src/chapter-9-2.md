@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Overcoming Negative Self-Talk and Building Resilience
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore strategies for overcoming negative self-talk and building resilience. Negative self-talk can hinder our progress, lower our self-esteem, and undermine our efforts to build better habits and routines. By cultivating resilience and adopting positive strategies, we can counter negative self-talk, strengthen our mindset, and propel ourselves towards increased productivity and success. In this chapter, we will discuss various techniques for overcoming negative self-talk and building resilience.
 

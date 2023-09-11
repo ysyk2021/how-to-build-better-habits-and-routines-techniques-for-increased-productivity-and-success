@@ -1,5 +1,4 @@
-Chapter 9: The Benefits of Mindset and Motivation in Encouraging Personal and Professional Growth
-=================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant benefits of mindset and motivation in encouraging personal and professional growth. A positive mindset combined with strong motivation can be transformative, propelling individuals towards increased productivity and success. By understanding the power of mindset and motivation, we can harness their benefits to build better habits and routines and achieve our goals.
 

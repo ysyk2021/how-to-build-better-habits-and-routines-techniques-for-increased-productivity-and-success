@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Cultivating a Positive Mindset and Staying Motivated
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for cultivating a positive mindset and staying motivated. Developing a positive mindset is crucial for maintaining resilience, overcoming challenges, and achieving success in building better habits and routines. With the right strategies and tools, you can foster a positive outlook and sustain high levels of motivation to stay on track towards your goals. In this chapter, we will discuss different techniques to cultivate a positive mindset and enhance your motivation.
 
